@@ -1,4 +1,4 @@
-# Jouni Kettunen & Juha Pyyhtiä
+# Jouni Kettunen & Juha Pyyhtiä (2009)
 ## EFFECTS OF NORDIC WALKING (NW) AND POWER TYPE TRAINING (RT) TO ADIPOKINES IN BLOOD 
 
 Overweight and obesity are emerging as a significant health problem in Finnish society. Obesity 
